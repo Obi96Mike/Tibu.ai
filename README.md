@@ -77,7 +77,7 @@ Great thanks to each of the Group 13 Members for their work and effort in the pr
 2. Bruce Onduru
 3. Hezron Munyakin
 4. Fred Mutisya
-5. Michael Obiero
+5. Wayne Asava
 
 
 
